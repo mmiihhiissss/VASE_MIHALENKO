@@ -1,1 +1,2 @@
 # VASE_MIHALENKO
+# Serus!
